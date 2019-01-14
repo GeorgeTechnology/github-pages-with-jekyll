@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Guess who's back?
 
-I'm glad you are here. I plan to talk about ...
+Why, Shady's back, of course.
